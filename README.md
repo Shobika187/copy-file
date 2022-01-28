@@ -6,9 +6,9 @@ PC
 Anaconda - Python 3.7
 ## ALGORITHM: 
 ### Step 1:
-
+ejk.dl;fjsd;lf
 ### Step 2: 
- 
+ dghfyjykukul
 ### Step 3: 
 
 ### Step 4:  
